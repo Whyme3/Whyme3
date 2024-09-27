@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning... what I can but do need some teachers
 - 💞️ I’m looking to collaborate on... Android
 - 📫 How to reach me...
-- My eamil: derekkeefe@proton.me or whyme87@disroot.org
+- My eamil: whyme1987@pm.me or whyme87@disroot.org
 - Telegram is: @Derkman1
 - 😄 Pronouns: He or Him I really don't care I don't get offended in this matter.
 - ⚡ Fun fact: ... I'm a Newbie so go easy
